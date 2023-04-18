@@ -6,3 +6,5 @@ i am not responsible for any problems this causes i just have these to play by m
 # Website 
 
 https://minesraft2.github.io/Blooket-Cheats/
+
+https://www.blooket.com/
